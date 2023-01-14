@@ -1,1 +1,1 @@
-# 189-getttiing-over-it-pots
+# 189-getting-over-it-pots
